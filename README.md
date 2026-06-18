@@ -1,11 +1,13 @@
 ## Olá 🌟 💛
 ## Me chamo Nicoli 💮
+
 - Gosto de jogar
-- Gosto de séries e filmes
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Gosto de séries e filmes🎞️
+- Gosto de cuidar da minha sobrinha
+- Adoro passar meu tempo com minha famiĺia e amigos👪
+- Gosto de animais🐕
+
+- Entre em contato
+nicoli.biazzoli@escola.pr.gov.br
+
+![](https://media.tenor.com/fLP8psmTlPcAAAAd/gina-linetti-brooklyn-99.gif)
