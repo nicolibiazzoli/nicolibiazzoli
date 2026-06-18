@@ -5,7 +5,7 @@
 - Gosto de séries e filmes🎞️
 - Gosto de cuidar da minha sobrinha
 - Adoro passar meu tempo com minha famiĺia e amigos👪
-- Gosto de animais🐕
+- Gosto de animais 🐕
 
 - Entre em contato
 nicoli.biazzoli@escola.pr.gov.br
