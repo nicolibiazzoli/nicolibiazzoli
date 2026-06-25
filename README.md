@@ -11,3 +11,5 @@
 nicoli.biazzoli@escola.pr.gov.br
 
 ![](https://media.tenor.com/fLP8psmTlPcAAAAd/gina-linetti-brooklyn-99.gif)
+
+![](https://media.tenor.com/3xvGTeaKqhYAAAAM/damon-salvatore-elena-gilbert.gif)
